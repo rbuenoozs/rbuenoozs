@@ -1,6 +1,6 @@
 ### boas vindas ao meu perfil 💗 
 
-💋 meu nome é rebeka bueno 💋
+💋 meu nome é Rebeka Bueno 💋
  
 - Estou estudando na alura
 - Estou aprendendo sobre a programação com minha escola
